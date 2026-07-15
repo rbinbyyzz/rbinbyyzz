@@ -3,7 +3,8 @@
 
 <p align="center">
  
-  [prns](https://pronouns.cc/@rbinbyyzz)
+  [prns](https://pronouns.cc/@rbinbyyzz) <img width="71" height="12" alt="1000031590" src="https://github.com/user-attachments/assets/2b3cc901-7ee8-48c2-8a5d-40add94b321f"/> [art fight](https://artfight.net/~robinboy_)
+
 </p>
 
 
