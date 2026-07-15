@@ -2,7 +2,8 @@
 ![1000031587](https://github.com/user-attachments/assets/d87a92a4-fc0e-4bf1-8ae3-d128cb7b22e4)
 
 <p align="center">
-[prns](https://pronouns.cc/@rbinbyyzz) 
+ 
+  [prns](https://pronouns.cc/@rbinbyyzz)
 </p>
 
 
