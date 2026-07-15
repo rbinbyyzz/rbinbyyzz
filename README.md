@@ -2,3 +2,4 @@
 ![1000031587](https://github.com/user-attachments/assets/d87a92a4-fc0e-4bf1-8ae3-d128cb7b22e4)
 <img width="1000" height="81" alt="1000031585" src="https://github.com/user-attachments/assets/114780c5-6bdb-4038-8fd4-aa63f6241979" />
 
+[prns](https://pronouns.cc/@rbinbyyzz)
